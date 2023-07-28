@@ -1,0 +1,1 @@
+Unleashing Creativity: My Journey Learning Website Design with Figma. From initial fascination to collaborative triumphs, Figma's power amazed me. Learning from masters, embracing user-centricity, and feedback loops fueled my growth. Each project's completion brought immense satisfaction. Now, armed with Figma, I'm ready to conquer the design realm, one pixel at a time.
